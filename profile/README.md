@@ -1,5 +1,15 @@
-# Playboro
+<div align="center">
 
-Something's coming.
+&nbsp;
 
-🏐
+# The city is playing.
+
+**Find the game. Show up. Play.**
+
+&nbsp;
+
+🏐 &nbsp; Coming soon.
+
+&nbsp;
+
+</div>
